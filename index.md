@@ -14,4 +14,4 @@ He is splendid. He is gorgeous. He is crazy. He is counting. He loves numbers. H
 
 ## A popular quote
 
-> „I count only for my pure joy!“ — Graf Zahl
+> I count only for my pure joy!
